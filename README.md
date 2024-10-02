@@ -3,7 +3,6 @@ Something about life
 
 
 -1 Die Brücke
---0 
 Die Brücke als Verbindung vom Ego (materiell) zur spirituellen Quelle.
 Das Ego hat Schutzmechanismen erstellt und evtl. damit, die spirituelle Kraft aus Liebe und Sorge blockiert.
 Um die isolierte spirituelle Kraft fließen lassen zu können, damit sie in der materiellen Welt wirken kann, kann eine Brücke gebaut werden um damit den Staudamm wieder zu öffnen... 
@@ -13,7 +12,6 @@ Sobald man die Quelle verstanden hat, kann das Vertrauen kommen und mann kann di
 
 
 -1 The bridge
---0 
 The bridge as a connection from the ego (material) to the spiritual source.
 The ego has created protective mechanisms and possibly blocked the spiritual power of love and care.
 In order to allow the isolated spiritual power to flow so that it can work in the material world, a bridge can be built to open the dam again... 
